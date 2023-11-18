@@ -75,22 +75,25 @@ Do you ever get the feeling that all your life is going by and you’re not taki
 > [!WARNING]
 > @11/16/2023 当时写一下的时候i was irritated when you prepped two salmon weighing nearly 30 pounds in total with scales all over your arms and you couldn't turn off or fast-forward the audiobook so you had to listen to endless tampon and bowel movement stories, it's not easy to be tactful with criticism.
 >
-> 
-    so here's the thing
-    -  <sub>听了一半听不下去了，有一种我没有好的点子还想要写脑洞的感觉（是的我自己也知道🙂）。值得一看的地方只能用bits来形容，准备看一下summary翻翻实体了事。</sub> 不过我倒是学习到了一点：
+
+so here's the thing
+```
+      -  <sub>听了一半听不下去了，有一种我没有好的点子还想要写脑洞的感觉（是的我自己也知道🙂）。值得一看的地方只能用bits来形容，准备看一下summary翻翻实体了事。</sub> 不过我倒是学习到了一点：
       - 我发现我的写作风格，尤其是在写自己的事情的时候，倾向于会像她一样，废话过多，不值得一体的琐事一大堆，尝试搞笑（但其实不是那么好笑）
       - 很多我（们）自己看自己身上的事情，当然觉得独一无二cherished，但是对于别人来说不是那样；
       - 我在写日记、写自己的事情、甚至写脑洞的一个原则：追求每一个字都是重点，都不可缺，都在推动剧情或者塑造人物情感；自己的琐事要简要精悍，客观；如果要写，那么一定要有一个目的，从这件事学到了什么？值得记住的经验和教训.
       - 我有两种learnings，一种是日常琐事中、完成目标中学会的小tips，比如如何保证你能早起；有些是larger then life universal principles, rules you set go yourself，前者是局限性的，不一定放在任何情况下皆准的条例
-      - 讲在外交旅程中的bowel movement或者你没有带tempon，这没有什么；用一个小时大讲特讲你所有的bowel movement没有什么特别几乎可以发生在所有人身上的事情，是读者不想看的；最后的结论和教训也不是应该随时带着tampon，而是you should prepare in advance and prepare for the worst. If there's some condition you can't change or are not willing to change, physical condition or OCD, learn to manage it. 最后也许是她的工作性质，但是我觉得这些类型的尴尬都没有什么，人之常情罢了。真正的尴尬，是当你承诺（对自己）一些事情，若干时间只发现你不仅没有deliver，还全然忘了抛之脑后，这是真正的尴尬。I've been through embarrassment so many times that embarrassment feels the second-hand embarrassment for me.
+      - 讲在外交旅程中的bowel movement或者你没有带tempon，这没有什么；用一个小时大讲特讲你所有的bowel movement没有什么特别几乎可以发生在所有人身上的事情，是读者不想看的；
+         最后的结论和教训也不是应该随时带着tampon，而是you should prepare in advance and prepare for the worst. If there's some condition you can't change or are not willing to change, physical condition or OCD, learn to manage it.
+         最后也许是她的工作性质，但是我觉得这些类型的尴尬都没有什么，人之常情罢了。真正的尴尬，是当你承诺（对自己）一些事情，若干时间只发现你不仅没有deliver，还全然忘了抛之脑后，这是真正的尴尬。I've been through embarrassment so many times that embarrassment feels the second-hand embarrassment for me.
       - yes you probably should bring plenty tampons, but that's a lesson for yourself not everyone, certainly not worth me listening to her babbling about it for 40min. 我听的时候花一个下午prepped two whole salmon 后悔自己为什么不多出点钱请人帮我搞好，也没见我写本书传授经验啊🙄 (actually there are lessons to be learned here：
         - **if some tedious work from which you can't gain knowledge or skill, let/pay somebody else to do it. Time > money.**
-        - **如果你想要实现一件事情，但是去达到这个目的，没有明确的、被人走出来的途径，最起码的，应该问一问，尝试，"raise your hand". the worst outcome is getting a no. but if you don't ask first, if you don't even try to figure out a way to achieve it, that's a no anayway. **
-      - 我听过的50%都是无所谓的经验和她的个人生活 —— 然后我意识到：就算像她一样的人，也可能个人私人生活一地鸡毛。所以没什么，大概所有成年人都没有get it together, just do what matters to you most well.
-      - 同时，我们自己体验到的struggle，unless it's truly inspiring, nobody cares. 所以自己也没必要wallow in self-pity，“it's no big deal”. you get up and get through it, yes, deal with it, learn from it, that's it. (unless one day you need to write lyrics you can go back and relive it hahaha)
-      - [ ] 所以接下来我也会注意不要在反思日记中，尤其是发出来的反思和日记中，烦这种浮于表面的错误。关键是，你/我能从这个经历中拿走什么。
+         - **如果你想要实现一件事情，但是去达到这个目的，没有明确的、被人走出来的途径，最起码的，应该问一问，尝试，"raise your hand". the worst outcome is getting a no. but if you don't ask first, if you don't even try to figure out a way to achieve it, that's a no anayway. **
+   - 我听过的50%都是无所谓的经验和她的个人生活 —— 然后我意识到：就算像她一样的人，也可能个人私人生活一地鸡毛。所以没什么，大概所有成年人都没有get it together, just do what matters to you most well.
+   - 同时，我们自己体验到的struggle，unless it's truly inspiring, nobody cares. 所以自己也没必要wallow in self-pity，“it's no big deal”. you get up and get through it, yes, deal with it, learn from it, that's it. (unless one day you need to write lyrics you can go back and relive it hahaha)
+    - [ ] 所 接下来我也会注意不要在反思日记中，尤其是发出来的反思和日记中，烦这种浮于表面的错误。关键是，你/我能从这个经历中拿走什么。
       
-
+```     
   - 她的另外一本书Who thought it was a good idea? 我看了个开头，so far so good.
     update@11/17/2023
     as of totday, I've roughly finished it. 推荐！
